@@ -15,7 +15,7 @@
 
 - 📫 How to reach me **gandukarthik1@gmail.com**
 
-- 📄 Know about my experiences [https://www.overleaf.com/project/643f798a25f3ee85214c535c, https://www.overleaf.com/project/62cfcb140cb62d056eb21767](https://www.overleaf.com/project/643f798a25f3ee85214c535c, https://www.overleaf.com/project/62cfcb140cb62d056eb21767)
+- 📄 Know about my experiences [Quant Trading Resume, Data Science & Engineering Resume](https://www.overleaf.com/project/643f798a25f3ee85214c535c, https://www.overleaf.com/project/62cfcb140cb62d056eb21767)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
