@@ -15,7 +15,7 @@
 
 - 📫 How to reach me **gandukarthik1@gmail.com**
 
-- 📄 Know about my experiences [https://github.com/KarthikGandu](https://github.com/)
+- 📄 Know about my experiences [Quant Resume]([https://github.com/](https://www.dropbox.com/s/oqjn5m9c3pua50a/karthik_resume_template%20%282%29.pdf?dl=0))
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
